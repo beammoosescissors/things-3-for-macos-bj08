@@ -1,4 +1,4 @@
-
+Things 3 for macOS best Addon - goal tracking and calendar integration is the best Things 3 for macOS addon, featuring goal tracking and calendar integration. Safe, efficient, and
 
 
 
